@@ -1,4 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=SickeninglyBeautiful&color=83676b&style=for-the-badge&label=✦)
+### 𝚂𝚝𝚊𝚛-𝙲𝚛𝚘𝚜𝚜𝚎𝚍 𝙻𝚘𝚟𝚎𝚛𝚜
+— two people who love each other deeply but are destined to be kept apart by fate, circumstances, or outside forces. Love that’s strong, but doomed by fate.
 ### 𝚂𝚕𝚘𝚠𝙱𝚞𝚛𝚗 𝚁𝚘𝚖𝚊𝚗𝚌𝚎 
 — takes time to develop , The characters don’t fall in love instantly. they resist, deny, argue, and slowly learn to understand one another. Each moment builds emotional tension until the connection finally ignites.
 ### 𝙱𝚒𝚝𝚝𝚎𝚛𝚜𝚠𝚎𝚎𝚝 𝚁𝚘𝚖𝚊𝚗𝚌𝚎
