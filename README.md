@@ -1,5 +1,9 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=SickeninglyBeautiful&color=83676b&style=for-the-badge&label=✦)
   <p align="center">
+  This my arknight oc ok? her name is glorizeda and she has a french accent  Shes a Vourive Dragon Race.. sword user and physical her and programichnik have ldr relationship they often just text each other ok? ok
+      <p align="center">
+    <img width="700" src="https://github.com/user-attachments/assets/11c106a0-af09-44ef-b179-aae47cc4165a" alt=![Screenshot_2026-01-25-14-38-59-367_jp ne ibis ibispaintx app-edit]>
+      <p align="center">
       <video src="https://github.com/user-attachments/assets/45cca63d-337b-4391-bcb3-55d69d27ce82">
   <p align="center">
     FIRST 6 STAR BTWW AAAAA
