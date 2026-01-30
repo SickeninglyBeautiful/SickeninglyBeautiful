@@ -1,10 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=SickeninglyBeautiful&color=83676b&style=for-the-badge&label=✦)
       <p align="center">
-            <p align="center">
-              I got his weapon early heh...
            <p align="center">
-      <p align="center">
-      <video src="https://github.com/user-attachments/assets/45cca63d-337b-4391-bcb3-55d69d27ce82">
   <p align="center">
     FIRST 6 STAR BTWW AAAAA
   <p align="center">
