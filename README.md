@@ -1,6 +1,4 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=SickeninglyBeautiful&color=83676b&style=for-the-badge&label=✦)
-      <p align="center">
-           <p align="center">
   <p align="center">
     FIRST 6 STAR BTWW AAAAA
   <p align="center">
