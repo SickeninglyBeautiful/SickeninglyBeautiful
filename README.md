@@ -1,10 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=SickeninglyBeautiful&color=83676b&style=for-the-badge&label=✦)
       <p align="center">
-    <img width="700" src="https://github.com/user-attachments/assets/11c106a0-af09-44ef-b179-aae47cc4165a" alt=![Screenshot_2026-01-25-14-38-59-367_jp ne ibis ibispaintx app-edit]>
             <p align="center">
               I got his weapon early heh...
            <p align="center">
-              <img width="500" src="https://github.com/user-attachments/assets/b1f0e964-760d-49a2-96ac-1236e3eef09b" alt=![Screenshot_2026-01-26-09-40-05-276_com gryphline endfield gp]>
       <p align="center">
       <video src="https://github.com/user-attachments/assets/45cca63d-337b-4391-bcb3-55d69d27ce82">
   <p align="center">
